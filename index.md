@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Deepak Kj's blog
 
 I'm glad you are here. I plan to talk about ...
